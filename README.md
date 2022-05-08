@@ -10,12 +10,11 @@
 
 // looking to some person which help me haha (XDA?) (CodeG?)
 
-// How to reach, easy my inbox:
-    <Gmail - cyberdyne.mail1@gmail.com
-    <Twitter - cyberdyne_root
-
-// I'm happy 
+// reach, easy my inbox: cyberdyne.mail1@gmail.com (GG),  @cyberdyne_root (Twitter) Prague 3 (CZ)
     
+
+know nothing
+//I'm happy 
      
 
 
