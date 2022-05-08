@@ -8,8 +8,8 @@
 
 - 💞️ I’m looking to some person which help me haha
 
-- 📫 How to reach me it's easy.    Twitter....@cyberdyne_root    
-                                                                 Gmail....cyberdyne.mail1@gmail.com 
+- 📫 How to reach me it's easy.    
+Twitter - @cyberdyne_root  /  Gmail - cyberdyne.mail1@gmail.com 
 
 
 
