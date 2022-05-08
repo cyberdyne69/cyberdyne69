@@ -1,15 +1,22 @@
-- 👋 Hi, I’m @cyberdyne69 
+// R.U.R.22.02.2022
 
-- 👀 I’m interested in learning and for now I opened GitHub for learn/save code.
-         techs_politics_theories_universe_trade and huge Android enthusiast.
-         I own three cats and a lot plants. 
+// Hi, I’m #cyberdyne69 born like human Roman but...
 
-- 🌱 I’m currently learning all about coding and starting today from scratch. 
+// I want learn code. I try to learn code from now. No hurry, big expert.
+   <22.02.2022 - opened GitHub 05.2022 - easy lessons 
+     
+// My stuff I like: techs_politics_theories_universe_trade and huge Android enthusiast.
+    <I own three cats and many different plants. 
 
-- 💞️ I’m looking to some person which help me haha
+// looking to some person which help me haha (XDA?) (cod.wonen)
 
-- 📫 How to reach me it's easy.    
-Twitter - @cyberdyne_root  /  Gmail - cyberdyne.mail1@gmail.com 
+// How to reach, easy:
+    <Gmail - cyberdyne.mail1@gmail.com
+    <Twitter - cyberdyne_root
+
+// I'm happy 
+    
+     
 
 
 
